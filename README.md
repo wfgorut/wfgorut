@@ -1,4 +1,4 @@
-# 👋 ¡Hola, mundo! Soy @wfgorut
+# 👋 ¡Hola, mundo! Soy @Willie
 
 Emprendedor, estratega digital y creador de cosas con propósito.  
 Soy el tipo de persona que convierte ideas locas en productos reales.  
